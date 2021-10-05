@@ -1,0 +1,2 @@
+# SemantikalWeb-Tugas2
+DWI DIEKY ANDRIAWAN_1120101881_SM3.1
